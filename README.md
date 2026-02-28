@@ -1,0 +1,1 @@
+# thephoolishstore.github.io
